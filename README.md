@@ -4,7 +4,7 @@ Currently trying to study undergrad Software Engineering.
 ### TMI
 
 - FINGERS CROSSED AT ALL TIMES!
-- Trying to get over my procastination
+- Trying to get over my procrastination
 - Never catch me looking at the screen -_-
 
   
